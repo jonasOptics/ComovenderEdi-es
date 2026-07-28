@@ -1,2 +1,4 @@
-# ComovenderEdi-es
-aprendar a editar video com seu celular onde estiver
+# Como ganhar Dinheiro com edições
+
+Usando apenas seu celular e um app capcut
+
